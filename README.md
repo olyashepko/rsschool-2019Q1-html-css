@@ -1,1 +1,2 @@
-# rsschool-2019Q1-codeacademy
+Olya Shepko
+https://www.codecademy.com/users/olya.shepko/achievements
